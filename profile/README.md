@@ -1,4 +1,5 @@
-![Copia Logo](https://github.com/user-attachments/assets/799a7bde-b37d-4cbf-8161-cd21a75e4d16)
+![image](https://github.com/user-attachments/assets/3b560fc4-52aa-4427-a9e7-3328ff4cc19c)
+
 
 # Copia Labs
 
